@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ditmann
+- 👀 I’m interested in Code
+- 🌱 I’m currently learning PYthon
+-  .;,,;.
+- 📫 How to reach me #ditmann4976 (Discord)
