@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ditmann
-- 🌱 I’m currently learning PYthon
+- 🤓 Data engineer student
 -  .;,,;.
 - 📫 How to reach me #ditmann4976 (Discord)
